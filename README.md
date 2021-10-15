@@ -1,9 +1,7 @@
-名字是我和初恋的名字缩写
+名字是两个人名字的缩写
 账号是在高考结束注册的
-好久都没有登录过，我想，这个昵称就作为一个纪念吧
-好喜欢那句话
 
-把书读下去，然后走出去，不枉活一生
+温柔而坚定，知足而上进
 
 <!---
 ZYH-DZ/ZYH-DZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
